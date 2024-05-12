@@ -1,6 +1,6 @@
-# Nmap automation tool by sudo WORLD
+# Script Shift tool
 Author : HR~MAFIA / HITESH GURU
-        <p>A best simple Nmap automation tool created by sudo WORLD.</p>
+        <p>A tool to create shell commands with your own custom name cmd.</p>
   <h2>Contact Information:</h2>
 <ul>
         <li>Created by : HITESH GURU / HR~MAFIA.</li>
