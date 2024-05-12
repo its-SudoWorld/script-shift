@@ -38,23 +38,23 @@ Author : HR~MAFIA / HITESH GURU
 <p>JOIN FAST GUY'S
 If you are interested in learning Cybersecurity and Ethical Hacking for free ....... Contact us == Zero₹cost
 
-Very Advance Knowledge of ||~~::--->>
-🛡️ Cybersecurity 🗡️
-⚔️ Ethical Hacking 🎩🎭
-🖤 Python 🐍
-💣 Bash (sh scripting) 🖤
-☠️ AI Developer 🎃
-💣 AI Prompt Engineer �🏻
-💬 AI Chatbots Developer 😈
-😎 AI Manipulation/FineTuning 🔥
-�📜 And Many More 📜�
-
-⚔️⚔️☠️ ONLY FOR ETHICAL USES ☠️⚔️⚔️
-📜📜 ONLY FOR EDUCATIONAL PURPOSES 📜📜
-
-
-JOIN US ON TELEGRAM ==
-Channel = t.me/sudo_world_channel
-Group = t.me/sudo_world
+Very Advance Knowledge of ||~~::--->> <br>
+🛡️ Cybersecurity 🗡️ <br>
+⚔️ Ethical Hacking 🎩🎭<br>
+🖤 Python 🐍 <br>
+💣 Bash (sh scripting) 🖤<br>
+☠️ AI Developer 🎃<br>
+💣 AI Prompt Engineer �🏻<br>
+💬 AI Chatbots Developer 😈<br>
+😎 AI Manipulation/FineTuning 🔥<br>
+�📜 And Many More 📜�<br>
+<br>
+⚔️⚔️☠️ ONLY FOR ETHICAL USES ☠️⚔️⚔️<br>
+📜📜 ONLY FOR EDUCATIONAL PURPOSES 📜📜<br>
+<br>
+<br>
+JOIN US ON TELEGRAM ==<br>
+Channel = t.me/sudo_world_channel<br>
+Group = t.me/sudo_world<br>
 
 </p>
